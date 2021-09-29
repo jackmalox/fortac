@@ -3,10 +3,10 @@ FREE!! Fortnite Account Generator-{xenXe}
 Free Fortnite Account Generator No Human Verification 2021 generator no human verification or survey free fortnite account generator no human verification free fortnite account mail and password generator no pin Fortnite V Bucks GENERATOR - FORTNITE Free vBucks No Human Verification ... Random fortnite account generator ps4 No Human verify. Linktree. Free Fortnite Account Generator No Human Verification ᐈ  CPAgrip is the most popular method for free Fortnite account generator no human verification, means you don't need to verify you as human or any survey. I know
 
   `CLICK HERE TO Get FREE FORNITE ACCOUNT.
-  <https://www.epicgames.com/fortnite/en-US/news>`_
+  <https://getcodehack.com/fortniteac-21/>`_
 
   `CLICK HERE TO Get FREE FORNITE ACCOUNT.
-  <https://www.epicgames.com/fortnite/en-US/news>`_
+  <https://getcodehack.com/fortniteac-21/>`_
   
 
 ## Free Fortnite Account Generator No Human Verification ᐈ
